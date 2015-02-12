@@ -1,0 +1,1 @@
+http://www.puzzlenode.com/puzzles/8-best-scrabble-opening
